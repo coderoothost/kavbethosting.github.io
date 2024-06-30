@@ -1,1 +1,1 @@
-kavbethosting.github.io
+betturkey.github.io
